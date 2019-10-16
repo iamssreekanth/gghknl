@@ -1,2 +1,0 @@
-# gghknl
-Kurnool Government Hospitals
